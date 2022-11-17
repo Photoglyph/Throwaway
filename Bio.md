@@ -2,7 +2,7 @@
 
 ## I've spent time in _Construction_, _the Military_, _Public Radio_, and _Education_.
 
-## My interests include **travel**, **music**, _listening and playing_, **photography**, **politics**, a couple of annoying cats, **beer**, and the **Perfect Gin & Tonic**, and 
+## My interests include **travel**, **music** -_listening and playing_, **photography**, **politics**, a couple of annoying cats, **beer**, the **Perfect Gin & Tonic**, and 
 ![NPR](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Ftse4.mm.bing.net%2Fth%3Fid%3DOIP.slGVV7WCoJktr0lCQZ3sqwHaCb%26pid%3DApi&f=1&ipt=1175c4aa3fae292b5a081df4a9d891660bdcbcd045c1a301b4a2687d7f0cb0fd&ipo=images).
 
 
